@@ -3,7 +3,7 @@ MMPROBUMP Bot
 
 support my github channel 
 
-Register Here : [VERTUS Bot](https://t.me/MMproBump_bot?start=ref_7147799703)
+Register Here : [MMPROBUMP Bot](https://t.me/MMproBump_bot?start=ref_7147799703)
 
 Join to My Telegram Group : [S4NSGroup](https://t.me/sansxgroup)
 
